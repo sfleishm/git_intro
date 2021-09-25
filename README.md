@@ -1,1 +1,2 @@
 Scott Fleishman
+fleishms@oregonstate.edu
